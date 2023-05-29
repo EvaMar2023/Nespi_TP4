@@ -1,0 +1,1 @@
+https://cnnespanol.cnn.com/2022/08/13/supergigante-betelgeuse-erupcion-masiva-trax/
